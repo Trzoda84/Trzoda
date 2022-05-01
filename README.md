@@ -1,0 +1,2 @@
+# Trzoda
+Nowicjusz 
